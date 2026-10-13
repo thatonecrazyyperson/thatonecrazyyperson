@@ -18,10 +18,6 @@
 *   **Status:** *Why do they always send the poor?* 🎶
 *   **Location:** 2Fort / Arkham Asylum
 
-### ❓ THE RIDDLER'S ENIGMA
-> *"I have keys but open no locks. I have space but no room. You can enter but can't go outside. What am I?"*
-> `[ANSWER]: A KEYBOARD.`
-
 ---
 
 ## 💿 CURRENT SOUNDTRACK
