@@ -1,10 +1,5 @@
 > *"Riddle me this... what is black and blue and dead all over?"*
 
-<div align="center">
-  <img src="https://giphy.com" width="180" alt="TF2 Dance">
-  <img src="https://giphy.com" width="180" alt="Riddler Question Mark">
-</div>
-
 ---
 
 ## 🛠️ THE LOADOUT (My Socials!)
