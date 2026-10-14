@@ -2,6 +2,12 @@
 
 ---
 
+Hi there, I’m Crazyy! :)
+I’m so glad you’re here looking at all of my socials and all about me so you can learn more about me, haha
+Have a great day!!! ♥️
+
+---
+
 ## 🛠️ THE LOADOUT (My Socials!)
 
 [![ArchiveOfOurOwn](https://shields.io)](https://archiveofourown.org/users/thatonecrazyperson/profile)
@@ -17,6 +23,13 @@
 *   **Current TF2 Main:** [Medic 🏥]
 *   **Status:** *Why do they always send the poor?* 🎶
 *   **Location:** 2Fort / Arkham Asylum
+
+--- 
+
+## ❤️‍🩹 OTHER INFO
+*   **Pronouns & Gender:** I am a female! I go by she/they pronouns :)
+*   **Hobbies:** I *love* to draw, make kandi bracelets, write stories—especially on AO3, haha—chat with my friends, and play games.
+*   **Personality Type:** *INFP-T*
 
 ---
 
